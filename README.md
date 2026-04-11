@@ -5,7 +5,7 @@
       
 　　　　　　　　　　　　　　　　　　　　　　![blinkiesCafe-F7](https://github.com/user-attachments/assets/d10c180d-9488-4d8a-ad25-bd0cdcc2e631)
 
-　　　　　　　　　　　　　—————————————————————————————— ∘       　 　　 　 ![2ee73fc9](https://github.com/user-attachments/assets/a5dd5f17-5a46-4705-af23-a5710bbbe4af)
+　　　　　　　　　　　　　———————————————————————————— ∘       　 　　 　 ![2ee73fc9](https://github.com/user-attachments/assets/a5dd5f17-5a46-4705-af23-a5710bbbe4af)
   
   
 
@@ -15,7 +15,7 @@
   discord: mikoenet     (ASK BEFORE ADDING!!)    　　　　　　　 　　♡  
   c+h is always welcome unless stated , w2i since im always either offtab or afk !          
   i will NOT be accepting party invites , i am already in one nor am i accepting random friend requests unless we get to know each other .
-　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />  　　　　　![b9734bfe](https://github.com/user-attachments/assets/ff3d9b2d-aeea-4a0c-b96f-077ce716284d)
+　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" /><img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />
  
 
 
