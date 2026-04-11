@@ -15,7 +15,8 @@
   discord: mikoenet     (ASK BEFORE ADDING!!)    　　　　　　　 　　♡  
   c+h is always welcome unless stated , w2i since im always either offtab or afk !          
   i will NOT be accepting party invites , i am already in one nor am i accepting random friend requests unless we get to know each other .
-　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" /><img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />
+　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" />　<img width="223" height="20" alt="57de5ebd" src="https://github.com/user-attachments/assets/22611c28-836f-46db-a6f7-15bf8f674880" /> 　　　　![f7e4afd6](https://github.com/user-attachments/assets/f4c85d51-63cc-4e25-a2a6-a4dfd9b6ca41)
+
  
 
 
