@@ -20,4 +20,7 @@
  
 
 
-![cba1aa21be3464c80b9ed130aed44aba](https://github.com/user-attachments/assets/83c55cbe-ccbe-4c01-9a0e-07dda9aee7ad)
+![cba1aa21be3464c80b9ed130aed44aba](https://github.com/user-attachments/assets/83c55cbe-ccbe-4c01-9a0e-07dda9aee7ad)  
+
+
+*" Sonic? do you think Shadow's okay? " ⋈*
