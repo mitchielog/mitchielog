@@ -26,4 +26,4 @@
 ![cba1aa21be3464c80b9ed130aed44aba](https://github.com/user-attachments/assets/83c55cbe-ccbe-4c01-9a0e-07dda9aee7ad)  
 
 
-- *" Sonic? do you think Shadow's okay? " ⋈*
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=spectral&weight=300&size=17&pause=1000&color=F7A8B5&width=435&lines=%22+Sonic%3F+do+you+think+Shadow's+okay%3F+%22+%E2%8B%88)](https://git.io/typing-svg)
