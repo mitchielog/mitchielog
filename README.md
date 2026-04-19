@@ -7,9 +7,11 @@
   
       
 　　　　　　　　　　　　　　　　　　　　　  ![blinkiesCafe-F7](https://github.com/user-attachments/assets/d10c180d-9488-4d8a-ad25-bd0cdcc2e631)
+  
 
-　![Static Badge](https://img.shields.io/badge/13%2C01-FA7AAC?style=plastic&logoColor=FFB5D3&logoSize=12%25&label=Mitchlings&labelColor=DEA0B2&color=2B2829&cacheSeconds=3600&link=https%3A%2F%2Fgithub.com%2Fmitchielog%2Fmitchielog%2Fedit%2Fmain%2FREADME.md)
-　　　　　———————————————————————————— ∘       　 　　 　 ![2ee73fc9](https://github.com/user-attachments/assets/a5dd5f17-5a46-4705-af23-a5710bbbe4af)
+　
+![Static Badge](https://img.shields.io/badge/13%2C01-FF9EBA?style=plastic&logoSize=12%25&label=mitchling&labelColor=454142&color=FF9EBA&cacheSeconds=3600&link=var%20total%20%3D%200%3B%20%24('.badge').each(function()%20%7B%20%20%20total%20%2B%3D%20parseInt(%24(this).text()%2C%2010)%3B%20%7D)%3B%20%24('.total-badge').text(total)%3B)
+　　　　　　　　———————————————————————————— ∘       　 　　 　 ![2ee73fc9](https://github.com/user-attachments/assets/a5dd5f17-5a46-4705-af23-a5710bbbe4af)
   
   
 
