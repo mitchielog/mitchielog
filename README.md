@@ -21,7 +21,10 @@
   discord: mikoenet     (ASK BEFORE ADDING!!)    　　　　　　　 　　♡  
   c+h is always welcome unless stated , w2i since im always either offtab or afk !          
   i will NOT be accepting party invites , i am already in one nor am i accepting random friend requests unless we get to know each other .
-　
+　   
+  there are other(rare) times that i will be talking, IN PARTY CHAt (or whisper)😂😂😂😂✌️✌️✌️✌️
+  
+  [ in all seriousness there are some occasions i will be talking in public chat ]
 ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰
 
  
@@ -31,4 +34,3 @@
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=spectral&weight=300&size=17&pause=1000&color=F7A8B5&width=435&lines=%22+Sonic%3F+do+you+think+Shadow's+okay%3F+%22+%E2%8B%88)](https://git.io/typing-svg) 
-
