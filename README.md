@@ -1,7 +1,2 @@
-<img width="735" height="754" alt="image" src="https://github.com/user-attachments/assets/78faa712-e58f-4a4c-9916-f50bdbc05cfc" />
+<img width="473" height="473" alt="wt4gb4" src="https://github.com/user-attachments/assets/76ddeaef-c9c4-4788-b551-eab225f9a8a6" />
 
-
-
-she so kute i lovr her sm
-
-wip
